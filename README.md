@@ -1,1 +1,0 @@
-# school-classroom-1
